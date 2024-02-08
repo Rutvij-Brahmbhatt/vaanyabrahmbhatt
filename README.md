@@ -1,2 +1,2 @@
-# yugbrahmbhatt.com
+# vaanyabrahmbhatt.com
 Repo for vaanyabrahmbhatt.com
